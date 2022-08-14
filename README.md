@@ -1,1 +1,0 @@
-# Student_resistration_project
